@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 Soon to publish something important I am working on.
+- 🔭 Cloud solution architect & Security engineer. Automation is the key!!!
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: laoding.......
+- ⚡ Fun fact: loading.......
 
